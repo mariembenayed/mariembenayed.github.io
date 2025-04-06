@@ -5,13 +5,13 @@ Mariem Ben Ayed ,étudiante en Master Data Science for Business and Economics à
 
 🎓 Formation:
 
-Master Data Science for Business and Economics
+Master Data Science for Business and Economics - 
 IHEC Sfax (2025 – 2026)
 
-Licence en Finance
+Licence en Finance - 
 Ecole supérieure de commerce , Sfax (2022 – 2024)
 
-Baccalauréat scientifique
+Baccalauréat scientifique - 
 Lycée 15 novembre 1955, Sfax (2021)
 
 💼 Expérience professionnelle:
