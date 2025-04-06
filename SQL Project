@@ -1,0 +1,1 @@
+cat covid-19_*.sql > covid-19_merged.sql
