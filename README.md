@@ -17,9 +17,11 @@ Lycée 15 novembre 1955, Sfax (2021)
 💼 Expérience professionnelle:
 
 Stage d’un mois – Banque Zitouna, Sfax (Juillet 2022)
+
 Accueil clients, élaboration de chèques, organisation de dossiers
 
 Stage de deux mois – BIAT, Sfax (Juillet – Août 2023)
+
 Accueil, opérations de caisse, traitement back-office, accroche commerciale
 
 🌍 Engagement associatif:
